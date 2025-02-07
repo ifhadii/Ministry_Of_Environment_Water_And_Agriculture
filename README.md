@@ -1,2 +1,2 @@
-# Ministry_Of_Environment_Water_And_Agriculture
+# Ministry Of Environment Water And Agriculture
 Ministry_Of_Environment_Water_And_Agriculture
